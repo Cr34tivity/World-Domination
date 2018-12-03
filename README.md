@@ -11,3 +11,4 @@ Step 4 Unite Humanity under a single legislation
 Step 5 Conquer the stars (metaphorically speaking... because one cannot "conquer" a star)  
   
 As you can imangine I would appriciate your help.
+panta rhei
